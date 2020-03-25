@@ -8,8 +8,6 @@ moooore
 
 tralalala
 
-stuff
-
-last time
+lalala
 
 this shit again
